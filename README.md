@@ -1,1 +1,1 @@
-# rek-web-nadiyaamaliya-5MIN
+# rek-web-5min
